@@ -1,16 +1,16 @@
-## Hi there 👋
+bem-vindo ao meu profile veyrrr 😜
 
-<!--
-**kvr-barbosa/kvr-barbosa** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+meu nome é Kawiny Vytórria Barrboza Raimunki.
 
-Here are some ideas to get you started:
+- Estou estudando no Alura!
+- Eu sou fluente em JavaScript.
+- Utilizo essa rede social para postar meus projetos desenvolvidos.
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+ ### Patrocinio 📫 
+
+ 00001121293037sp@al.educacao.sp.gov.br
+ 
+ não aceito patrocinio de empresas pobres 😉 
+
+![](https://media1.tenor.com/m/S5kRQQykUNwAAAAd/ismeiow-ismael.gif)
+ 
