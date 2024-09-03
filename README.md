@@ -1,6 +1,6 @@
 bem-vindo ao meu profile veyrrr 😜
 
-meu nome é Kawiny Vytórria Barrboza Raimunki.
+meu nome é Kawiny Vytórria.
 
 - Estou estudando no Alura!
 - Eu sou fluente em JavaScript.
