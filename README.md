@@ -10,6 +10,6 @@ meu nome é Kawiny Vytórria Barrboza Raimunki.
 
  00001121293037sp@al.educacao.sp.gov.br
  
- não aceito patrocinio de empresas pobres 
+ não aceito patrocinio de empresas pobres 🤑
  
 ![](https://media1.tenor.com/m/iiHoJ_kPlbMAAAAC/ismeiow-hot.gif)
