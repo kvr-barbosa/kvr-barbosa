@@ -12,4 +12,4 @@ meu nome é Kawiny Vytórria Barrboza Raimunki.
  
  não aceito patrocinio de empresas pobres 
  
-![](https://tenor.com/l1rggYq9EOZ.gif)
+![]([https://tenor.com/l1rggYq9EOZ.gif](https://media1.tenor.com/m/iiHoJ_kPlbMAAAAC/ismeiow-hot.gif))
