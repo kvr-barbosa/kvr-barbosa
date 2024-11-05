@@ -1,4 +1,4 @@
-bem-vindo ao meu profile veyrrr 😜
+[bem-vindo ao meu profile veyrrr 😜
 
 My name is Kakau.
 
@@ -12,4 +12,6 @@ My name is Kakau.
  
  não aceito patrocinio de empresas pobres 🤑
  
-![](https://media1.tenor.com/m/c_0vzegVOEcAAAAd/ada-wong-resident-evil.gif)
+![](https://media1.tenor.com/m/c_0vzegVOEcAAAAd/ada-wong-resident-evil.gif) ![](https://media1.tenor.com/m/eIJb5ko1G_wAAAAd/ada-wong-resident-evil.gif)
+
+![](https://media1.tenor.com/m/xg-NgxTUSTsAAAAd/leon-kennedy-leon-kennedy-i-love-my-girlfriend.gif) ![](https://media1.tenor.com/m/rDymaLDy8GAAAAAd/good-morning-leon-kennedy.gif)
